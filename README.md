@@ -2,4 +2,4 @@
 - 👀 I’m interested in learning how to code
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me email or discord
+- 📫 How to reach me email or discord ( cy.altt@gmail.com, cy#9175 )
